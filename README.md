@@ -6,5 +6,7 @@ Arielle Slatus, Sukhada Khatu
 
 Professor Amit Shesh
 
+Northeastern University
+
 Spring 2021
 
